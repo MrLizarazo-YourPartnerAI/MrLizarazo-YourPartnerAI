@@ -6,7 +6,7 @@ I want serious and honest people with values ​​and principles, to avoid long
 Especially welcome friends from China and other countries, who due to government limitations cannot expand their ideas to the rest of the world.
 
 - 🌱 I’m currently learning Programation in Python...
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on expanding your ideas in Latin America and the rest of the world and in whatever way I can help you 
 - 📫 How to reach me: https://www.linkedin.com/in/luis-lizarazo-7b7607152/
 
 
