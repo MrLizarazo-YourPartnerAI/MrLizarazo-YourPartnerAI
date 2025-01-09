@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MrLizarazo-YourPartnerAI
-- 👀 I am interested in meeting friends/partners with great experience and programming skills, who have new ideas in mind, for example to create membership websites, AI Video Generator, AI Voice/text to Video, Forex, Audio, games, big data, virtual libraries, etc. It doesn't matter what idea you have in mind as long as it can be sold here in Latin America, Europe and the rest of the world, with the goal of profiting economically in a beautiful society.
+- 👀 I am interested in meeting friends/partners with great experience and programming skills, who have new ideas in mind, for example to create membership websites, AI Video Generator, AI Voice/text to Video, Forex, Audio, games, big data, virtual libraries, Quantum computing...etc. It doesn't matter what idea you have in mind as long as it can be sold here in Latin America, Europe and the rest of the world, with the goal of profiting economically in a beautiful society.
 I can provide capital to start executing those great ideas you have in mind.
 I want serious and honest people with values ​​and principles, to avoid long-term conflicts and guarantee harmonious collaboration.
 
